@@ -1,6 +1,6 @@
 ---
 layout: default
-title: skeleton tskeleon
+title: both heels
 ---
 
 ## both heels
