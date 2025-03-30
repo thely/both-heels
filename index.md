@@ -91,7 +91,7 @@ At some point, the noise gets loud enough that she remembers where she is again.
 
 The jingle. She lifts up to a sitting position with a start, hitting the pedal (and, by extension, the kick) completely by accident. She tries, but realizes she can't stand up fast enough to get over to the board, so she scrambles to do the next best thing - she plays the sticks across the board as if they were her heels. She's too focused on a good representation of the sound to actually worry about anything else that's happening. She's almost visibly keeping time to try and make sure it's accurate.
 
-### Chunk 5: Accepting
+### Attempt 5: Accepting
 
 Normally, there's a bit of a pause between the end of the jingle and the date resuming. Not so this time. She looks over at the chair, realizes she couldn't possibly get back in time, and just... lets the date go on its own for a bit. The glass is ringing in the recording again, same as last time, so clearly something's going right. Maybe she hums along for a moment.
 
